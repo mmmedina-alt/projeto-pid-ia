@@ -2,7 +2,7 @@
  
  Acesse o site abaixo para mais detalhes:
  
- 👉 **[Acesse aqui o link da Lojinha dos EPIs](https://matheusmedina3.wixsite.com/projetopid)** 👈
+ 👉 **[Acesse aqui o link da Lojinha dos EPIs](https://matheusmedina3.wixsite.com/projetopid2025)** 👈
  
  ## Imagem de uma aula prática de Biossegurança 📷
  ![Image](https://github.com/user-attachments/assets/dde1ea8a-a8ce-4084-aeef-31d0c811d057)
